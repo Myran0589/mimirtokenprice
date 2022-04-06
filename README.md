@@ -1,3 +1,3 @@
 # mimirtokenprice
 
-i am not sure but some of from this was of subrata or may be of zeus
+If you have problem with dawnload then copy/fork then you can
